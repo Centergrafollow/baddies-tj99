@@ -1,4 +1,4 @@
-
+no-ban Scripts for baddies is the best baddies Script, featuring auto-sell and auto-upgrade. Safe and powerful for all your needs.
 
 
 
